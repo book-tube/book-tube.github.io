@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Endoplasmatisches Retikulum"
-date:   2021-03-03 18:57:36 +0100
+date:   2021-03-10 18:57:36 +0100
 book: "Der Einbruch"
 categories: der-einbruch
 ---
