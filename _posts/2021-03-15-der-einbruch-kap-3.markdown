@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Projektierung"
+title:  "Konfrontation"
 date:   2021-03-15 17:20:00 +0100
 book: "Der Einbruch"
 categories: der-einbruch
