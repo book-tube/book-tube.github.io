@@ -1,0 +1,26 @@
+---
+layout: post
+title:  "Trikomatöser Tag"
+date:   2021-03-23 18:57:36 +0100
+book: "Der Einbruch"
+categories: der-einbruch
+---
+
+# Trikomatöser Tag
+Ich schleudere das verfaulte Ei am Dummkopf ans Fenster. "Du verdammter Mistkerl! Immer meiner Familie die Schuld geben." schreie verärgert. Als ob wir immer den Müll neben den Container schmeissen. Ich schleuderte das nächste Ei und genau in diesem Moment macht er das Fenster auf und *platsch* es landet auf seinem Gesicht. Ich habe ein schlechtes Gewissen. "Du kleine Ratte!" ruft er mir entgegen. Er schliesst das Fenster und vom einen zum anderen Moment kommt er raus. Er hält etwas in der Hand und ruft mir Schimpfwörter entgegen. Ich renne so schnell ich kann und versuche ihn mit den letzten Eier ab zu schiessen. Vor meiner Haustür packt er mich an der Kapuze. Jetzt bemerke ich was er in der Hand hält: ein Wallholz. Ich bleibe ein paar Sekunden wach und spüre den Schmerz wie er mich zusammenschlägt. Ich wurde bewusstlos.
+
+Ich stehe auf und sehe plötzlich einen Teufel. "*whhääää du Hässlon*" so reagiere ich, als ich den Belzebub vor mir sehe. Da kommt noch einer in Sicht, doch der sieht besser aus, als der andere. "Beruhige dich" sagte der besser aussehende. "Wir machen dir nichts" fährt er fort. Ich stehe auf, um zu verschwinden. "Wo willst du hin?", meint alte Sack. Er haltet mich immer noch am Unterarm und schaut mich fragend an. "Vielleicht weg von Psychos?" antworte ich daraufhin."Also Bursche ich heisse Lester" beginnt *Lester* "Und ich bin Jeff." fügt die Hackfresse hinzu. "Und wer bist du?" fragt mich Lester. "Wenn du mir 'ne Cola gibst sag' ich's dir" ich schaue ihn grimmig an und er nickt.
+
+Nach etwa fünf Minuten fragt er mich nochmals. "Wie heisst du?" ich nahm noch einen Schluck und sage: "Rocket" ich sauffe die Cola leer und schmeisse sie in den Müll. "Doch nicht dort hin in den Alu-Sack neben dran!" genau in diesem Moment verschwinde ich. Ich renne durch das Quartier und checke gar nicht wo mein Zuhause ist. Ich renne einfach weiter, weil mich die Typen einfach verfolgen. Sie sind viel zu langsam, weil Lester nicht mit seinem Stock nach kommt. Ich bin weg. Ausser Atem halte ich an und suche immer noch nach meiner Familie.
+
+Ich sitze schon eine ganze Weile da, schon hunderte Menschen laufen durch bis ein Mann anhaltet und mir einen Penny gibt. "Du armer Kerl" sagte er nur und ging weiter. "Mein Gott danke du Rotzgesicht!" ich renne zum nächsten Laden und gehe zur Kasse mit einem riesen Sandwich. "25$ bitte" sagt die Kassiererin und ich ich gebe meinen Penny. Doch sie hielt immer noch die Hand hin. "Noch 24.75$ bitte" sagt sie mir. "Ich habe es ihnen doch gegeben?" sage ich und rechne 25$-25$ aus. "Nein du hast mir…" in diesem Moment haue ich ab. "Du verdammte Kuh!!!" rufe ich ihr hinterher. Da ging der Alarm los. Ich versuche mich in meinem Versteck zu verstecken, doch da kam mir ein Mann zuvor. Er packte mich und schlagt mich an den Grind und ich sehe nur noch schwarz.
+
+Ich stehe auf und ich bin wieder in einem Raum und er kam mir bekannt vor. "Hi Rocket ich bin's Jeff" da kommt der Belzebub wieder in Sicht "Ach nein!!!" ich bin schon wieder in dem Haus von Lester. Ich versuche aufzustehen doch mir tat der Kopf weh. Ich sehe Lester der mir einen Eisbeutel an meinem Grind hält.
+
+Ich haue mir auf den Kopf, weil ich denke ich bin in einem Traum, doch es nützt nichts, ausser es tut wieder weh. Ich stehe auf und frage ob ich ein Glas Wasser haben könnte. Als sie sich beide umdrehen renne ich auf und davon. "Adios, Amigos!" rufe ich hinterher. Ich gehe auf den Gehweg und renne in eine Wand. Ich sehe auf und sehe einen Muskelprotz. "Haleluja ein Godzilla!" *pong* das höre ich als letztes und ich sah wieder nur eine Farb und zwar schwarz.
+
+Ich stehe zum dritten mal auf und rieche Nutella und Zwiebeln dazu noch den Sound von Mr. Bean. Ich stehe auf und und sehe Lester und Jeff  der heult. "Was ist den mit dir?" frage ich ihn. Sie reagierten nicht, also versuchte ich wieder zu verschwinden, doch die Eingangstüre war zu. Ich ging zur Küchentür, doch die war auch geschlossen. "Hää" ich haue Jeff und frage ihn wo die Schlüssel sind, doch er reagiert auch nicht. Langsam werde aggressiv. Jeff haltet mir nur eine Cola hin und sagt: "Realax" Ich nehme sie entgegen und setze mich aufs Sofa.
+
+*Ich stand reglos da wie meine Mutter und mein Vater sich stritten. Ich hörte im Hinergrund ein Tür auf gehen und ich rannte in mein Zimmer hoch. Ich spielte Lego und sah wie maskierte Typen in unser Haus rein gingen. "Mama! Papa!" schrie ich nur und einer der Räuber packte mich und hielt mein Mund zu. Der andere rief in zu sich. Er ging weg und ich ging zum Geländer. Ich sah wie Papa Mama griff und die Räuber auf sie zielten. Mein Vater sagte: "Nehmt alles was ihr wollt, aber nicht mein Kind." und das war sein letzter Satz und dann…*
+
+Ich erwache schweiss gebadet auf dem Sofa und gehe Morgen essen. Ich fühlte mich wie Zuhause bei meinem Onkel. Ich machte den Kühlschrank auf und sehe ein Sandwich der genau so aussah wie der den ich *geklaut* hatte. Ich öffne die Verpackung und möchte meinen ersten Biss nehmen… "Nein, nein, nein Minjung. Das ist für Jeff." Ich haue das Sandwich auf den Boden, zerquetsche es mit meinen Füssen und sage: "Jetzt ist es für Jeff."
