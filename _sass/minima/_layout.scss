@@ -124,6 +124,10 @@
   margin-left: 0;
 }
 
+.book-name {
+	color: $text-color !important;
+}
+
 .footer-col-wrapper {
   @include relative-font-size(0.9375);
   color: $text-color;
